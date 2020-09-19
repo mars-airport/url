@@ -3,3 +3,5 @@
 https://vpmssr.xyz    
 https://vray2.xyz
 
+https://vrayssr.xyz
+
