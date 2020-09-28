@@ -1,7 +1,9 @@
 # 最新地址
 
-https://vpmssr.xyz    
-https://vray2.xyz
+202009128日
 
-https://vrayssr.xyz
+【国内可访问】https://vpmssr.xyz
+ 
+【需要翻墙】 https://vrayssr.xyz
+
 
